@@ -1,2 +1,4 @@
-# T-cket[create a tic](https://discord.gg/quick-resolve)
+# T-cket
 
+
+ [https://T-cket.github.io](https://discord.gg/quick-resolve)
